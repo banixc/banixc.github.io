@@ -11,7 +11,7 @@ date: 2017-03-18 12:08:00
 
 ## 再一次
 
-![封面](https://www.tuchuang001.com/images/2018/11/21/0060lm7Tgy1fdqvjouzeij30fk0i2n9i.jpg)
+![封面](https://i.loli.net/2019/04/25/5cc1baea1ea72.jpg)
 
 三月，迎来新的学期，御影之滨的三所中学迎来合并。
 

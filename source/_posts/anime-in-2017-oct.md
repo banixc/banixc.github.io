@@ -17,7 +17,7 @@ date: 2017-10-08 23:08:00
 
 #### 埃罗芒阿老师
 
-[![埃罗芒阿老师](https://tuchuang001.com/images/2017/10/09/62485987_p0.md.png)](https://tuchuang001.com/image/45Wa4)
+[![埃罗芒阿老师](https://i.loli.net/2019/04/25/5cc1baea1ea72.jpg)](https://tuchuang001.com/image/45Wa4)
 
 姑且叫这个名字吧，毕竟我大B站官方译名就是这个，不懂行的人也不知道这个是什么意思。
 伏见司继'俺妹'后的最新力作，之前关注蛮多了，出了之后自然是追追追。
@@ -27,7 +27,7 @@ date: 2017-10-08 23:08:00
 
 #### 月色真美
 
-[![青春恋爱物语](https://tuchuang001.com/images/2017/10/09/timg.jpg)](https://tuchuang001.com/image/45YFn)
+[![青春恋爱物语](https://i.loli.net/2019/04/25/5cc1baea1ea72.jpg)](https://tuchuang001.com/image/45YFn)
 
 同样的追番但是却看的心情十分的复杂，这部番的名字叫做月色真美。
 月色真美来自夏目漱石的一句名言：在英语中将I Love you 翻译为「今夜は月が绮丽ですね」（今夜月色真美啊），并说到，作为日本人而言，直白的说出我爱你并不够含蓄。
@@ -37,7 +37,7 @@ date: 2017-10-08 23:08:00
 
 #### 路人女主的养成方法 S2
 
-[![路人女主的养成方法](https://tuchuang001.com/images/2017/10/09/lrnzhdychff.jpg)](https://tuchuang001.com/image/45nLs)
+[![路人女主的养成方法](https://i.loli.net/2019/04/25/5cc1baea1ea72.jpg)](https://tuchuang001.com/image/45nLs)
 
 依然的作画精良，虽然偏向后宫片，但是官方也没有真正出来站谁。而第二季后半段一改前面的感情纠葛，将社团的矛盾推向了巅峰：商业游戏制作者朱音希望英梨梨和学姐加入他们的工作组参加一个经典作品的续作企划。
 
@@ -49,7 +49,7 @@ date: 2017-10-08 23:08:00
 
 #### 末日时在做什么？有没有空？可以来拯救吗？
 
-[![末日时在做什么？有没有空？可以来拯救吗？](https://tuchuang001.com/images/2017/10/09/maxresdefault.jpg)](https://tuchuang001.com/image/45Ti7)
+[![末日时在做什么？有没有空？可以来拯救吗？](https://i.loli.net/2019/04/25/5cc1baea1ea72.jpg)](https://tuchuang001.com/image/45Ti7)
 
 突然发现这部番的名字这么长。当时听名字觉得挺傻逼的一部番后面看了一下风评不错 bgm#435于是便打算补一下，看了一下开头发现不知道在讲什么就决定弃掉。
 
@@ -63,13 +63,13 @@ date: 2017-10-08 23:08:00
 
 #### 动物朋友
 
-[![动物朋友](https://tuchuang001.com/images/2017/10/09/timg1.jpg)](https://tuchuang001.com/image/45rXj)
+[![动物朋友](https://i.loli.net/2019/04/25/5cc1baea1ea72.jpg)](https://tuchuang001.com/image/45rXj)
 
 这个不是四月番，是2017的一月番。说实话其实这部番有点像子贡向+科普片。8号刚刚补完，没有什么感悟，也许是补番周期太长，占坑等后面有想法再写。
 
 #### 声之形
 
-[![声之形](https://tuchuang001.com/images/2017/10/09/45464_1_1468423173.jpg)](https://tuchuang001.com/image/45uZJ)
+[![声之形](https://i.loli.net/2019/04/25/5cc1baea1ea72.jpg)](https://tuchuang001.com/image/45uZJ)
 
 BD出了之后补的 16年的一部剧场版，京阿尼出品，京都尽力的在做一个电影而不是去做一个动画的剧场版，但是由于节奏把握不好，导致整个片子看着没有一种在看电影的感觉。主题很不错，讲的是日本的学校均有的一种现象--校园霸凌，但是这个故事却没有通过一种恰当的节奏清楚的讲出来。
 
