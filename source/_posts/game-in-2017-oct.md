@@ -11,7 +11,7 @@ date: 2017-10-09 23:09:00
 
 ## 美好的每一天 ～不连续的存在～
 
-[![素晴日](https://i.loli.net/2019/04/25/5cc1baea1ea72.jpg)](https://tuchuang001.com/image/45DxZ)
+[![素晴日](https://tuchuang001.com/images/2017/10/09/1-130P3111606.jpg)](https://tuchuang001.com/image/45DxZ)
 
 号称毒电波之作，不玩就无法体会到这部作品的威力，于是便尝试去玩了一下。第一条线玩起来感觉莫名奇妙，百合这是？？？
 从第二条线（由岐二周目）开始整个游戏就开始进入一种毒电波的状态了。
@@ -22,7 +22,7 @@ date: 2017-10-09 23:09:00
 
 ## 魔法使之夜
 
-[![魔法使之夜](https://i.loli.net/2019/04/25/5cc1baea1ea72.jpg)](https://tuchuang001.com/image/450V6)
+[![魔法使之夜](https://tuchuang001.com/images/2017/10/09/timg3b9bd.jpg)](https://tuchuang001.com/image/450V6)
 
 虽然我不是型月粉，但我还是要强推这部游戏。
 演出效果爆炸的Galgame，一个像动画的Galgame，没有声音却能脑补出声音的Galgame。
@@ -39,7 +39,7 @@ date: 2017-10-09 23:09:00
 
 ## 空洞骑士
 
-[![空洞骑士](https://i.loli.net/2019/04/25/5cc1baea1ea72.jpg)](https://tuchuang001.com/image/45I0x)
+[![空洞骑士](https://tuchuang001.com/images/2017/10/09/SQ_WiiUDS_HollowKnight.jpg)](https://tuchuang001.com/image/45I0x)
 
 一部看似粗制烂造不过做工十分精良的独立横板2D动作游戏。
 
